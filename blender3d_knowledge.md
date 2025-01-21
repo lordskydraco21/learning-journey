@@ -14,4 +14,4 @@
 - moderate lvl video editing 
 - texture maps
 
-### should add more..... 
+### should add more..... oh so this was 2yrs ago!
